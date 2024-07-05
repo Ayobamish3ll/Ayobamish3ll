@@ -1,4 +1,4 @@
-## Hi I'm Ayobami!👋
+## Hi I'm Ayobami!👋 <br/><a href="https://www.linkedin.com/in/ayobamipopoola/">Cybersecurity Professional | Soc Analyst.</a>
 
 
 <!--
